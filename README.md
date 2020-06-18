@@ -1,6 +1,4 @@
-# Hossein Malekinezhad
-
-About Me
+# About Me
 
 Hossein Malekinezhad, Ph.D
 
